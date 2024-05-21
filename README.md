@@ -10,5 +10,3 @@ Meu nome é Henrique Rosendo Mulero
 
 00001088833032sp@al.educacao.sp.gov.br
 
-![](https://tenor.com/pt-PT/view/morde-mordekaiser-brazil-mordekaiser-diff-gif-2732275)
-
